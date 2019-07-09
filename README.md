@@ -39,7 +39,7 @@ We already tested our sensors in Mars Desert Research Station (MDRS) which is th
 Our device will open the opportunity to explore beyond of our solar system and make possible direct human connection to space. It is crucial for the survival of human race as we are running out of valuable resources which are available in distant planets. As these intergalactic changes and events carries the vital information about the fate of our planet, our “Planet kit” will play a vital role for human race.
 
 Our 240 Sec of glory will be available in this youtube link: https://www.youtube.com/watch?v=maqDUctwEj0&t=16s.
-This is the 30s video ofnour project: https://www.youtube.com/watch?v=UZW37J8qUXk
+This is the 30s video of our project: https://www.youtube.com/watch?v=UZW37J8qUXk
 
 
 Resources:
